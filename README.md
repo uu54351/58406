@@ -21,4 +21,4 @@
 如果你正在寻找一个值得长期信赖的日本AV免费电影网站，这里就是你的理想之地。收藏本站，每天都有新片上线，让你随时随地畅享高质量的日本成人视频内容，轻松开启专属你的观影时光。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/uu54351/58406 ）</span>
